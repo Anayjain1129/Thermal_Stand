@@ -20,4 +20,4 @@ okay it's like this but just a roll of a big roolll off paper which keeps gettin
 <img width="576" height="532" alt="image" src="https://github.com/user-attachments/assets/ce03aeb1-98d0-4dfd-bebc-cf2a0a6b4d77" />
 okay so i made this wall holder so i can use it for holding a single thermal paper so i can easily take it out to use it easily!! so yea now it's ready to print too!! so yeaa!!! it's ready to print and now im waiting for the previous one to be printed!! and then i'll print this one too! 
 
-**Total time spent: 1 hr  16 mins**
+**Total time spent: 1 hr  18 mins**
