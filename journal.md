@@ -37,3 +37,10 @@ okay so i think i have completed that model! that both paper holder one but i th
 <img width="988" height="798" alt="image" src="https://github.com/user-attachments/assets/eb12fdfb-4360-4cde-ba3d-aef8c650c0c1" />
 
 **Total time spent: 1 hr 7mins**
+
+# July 26th: making a holder for 2 rolls of thermal paper!! 
+so i made a holder for 2 rolls of thermal paper! which can hold upto 2 rolls of thermal paper! so yea! this will help my desk be organizedd!!! 
+<img width="535" height="550" alt="image" src="https://github.com/user-attachments/assets/9d559a5f-f7bc-4cbb-941b-5dbb1170bb74" />
+<img width="531" height="323" alt="image" src="https://github.com/user-attachments/assets/92987a7d-ac25-4a7f-babe-dd1c13a22e11" />
+
+**Total time spent: 46 mins**
