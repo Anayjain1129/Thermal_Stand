@@ -21,3 +21,12 @@ okay it's like this but just a roll of a big roolll off paper which keeps gettin
 okay so i made this wall holder so i can use it for holding a single thermal paper so i can easily take it out to use it easily!! so yea now it's ready to print too!! so yeaa!!! it's ready to print and now im waiting for the previous one to be printed!! and then i'll print this one too! 
 
 **Total time spent: 1 hr  18 mins**
+
+# July 25th: a stand for both roll of paper and normal paper
+so i came up with a new idea of making a stand which have both holder for roll of thermal paper and normal paper which are supposed to be kept normally this onw will have both of them! so yea! i just watched some tuts about learning a lil bit more features of fusion and then i tried to use it! but i just completely forgot that i was just recording my broswer screen 😭 but yea i have made smtg!! 
+<img width="1136" height="800" alt="image" src="https://github.com/user-attachments/assets/33e752c2-ddbe-43e5-b6c3-fc8f533a1127" />
+also i broke my glasses 💔
+<img width="1136" height="800" alt="image" src="https://github.com/user-attachments/assets/5e83596a-4538-4848-80c8-8ea291b22e88" />
+tuff nvm now the first part is printed too lemme get back to my room and check stuff if it works or not or it things fit in fine or not! and put second one on print! and check that one too!! 
+
+**Total time spent: 1 hr 28min**
