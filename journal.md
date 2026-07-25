@@ -30,3 +30,10 @@ also i broke my glasses 💔
 tuff nvm now the first part is printed too lemme get back to my room and check stuff if it works or not or it things fit in fine or not! and put second one on print! and check that one too!! 
 
 **Total time spent: 1 hr 28min**
+
+# July 25th: completed that model! 
+okay so i think i have completed that model! that both paper holder one but i think i should add more thigns too it!! 🤔maybee!! laterrr i'll do it im jsut hungry rn! so yea imma gonna go and eat smtg and get back soon! 
+
+<img width="988" height="798" alt="image" src="https://github.com/user-attachments/assets/eb12fdfb-4360-4cde-ba3d-aef8c650c0c1" />
+
+**Total time spent: 1 hr 7mins**
