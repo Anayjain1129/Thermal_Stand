@@ -44,3 +44,8 @@ so i made a holder for 2 rolls of thermal paper! which can hold upto 2 rolls of 
 <img width="531" height="323" alt="image" src="https://github.com/user-attachments/assets/92987a7d-ac25-4a7f-babe-dd1c13a22e11" />
 
 **Total time spent: 46 mins**
+
+# July 29th: setting up the github repo and submitting!
+okay so i have completed this project and have printed 3 parts too, but they are at my home but im in train rn so i can not really upload pictures of them! so yea! i'll print rest of the parts when i get back home from SINGAPORE!!!!! YES IM COMING!!! so yea! that's it i just made the readme and wrote stuff there and uploaded all the project files so that reviewer can check the timeline of the project and also uploaded the production files, that files that are required to be printed!! and now i think we are good to go!! 
+
+**Total time spent: 1hr 3 mins**
