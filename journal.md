@@ -53,4 +53,4 @@ okay so i have completed this project and have printed 3 parts too, but they are
 # July 29th: Uploading .step
 so the project got rejected cause it didn't had step so yea i added it!! 
 
-**Total time spent: 10mins**
+**Total time spent: 11mins**
