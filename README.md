@@ -1,4 +1,4 @@
-<img width="1128" height="953" alt="image" src="https://github.com/user-attachments/assets/31533ff5-8b34-44ee-a78d-01989228b3e8" /># Thermal_Stand
+# Thermal_Stand
 Multiple stands, and holders for my thermal printer
 
 # Why did i made this? 
